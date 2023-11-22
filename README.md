@@ -6,7 +6,7 @@
 
 👷🏻‍♂️   Role: Senior Staff Engineer
 
-🤝   Team: Restaurants / Partners
+🤝   Team: Restaurant Experience
 
 🤳🏻   LinkedIn: https://www.linkedin.com/in/palmerd/
 
